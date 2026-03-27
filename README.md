@@ -1,5 +1,5 @@
 # 💫 About Me:
-🔭 I’m currently working on<br>👯 I’m looking to collaborate on<br>🤝 I’m looking for helSoulaimane El Masnaouy<br>Full-Stack Developer & Creative Coder<br><br>📍 Temara, Morocco<br>💼 Open to opportunities<br>🎓 Specialized Technician Diploma in Digital Development (Web Full Stack – OFPPT NTIC Rabat)<br><br>I started coding at 24, driven by curiosity and a growing passion for technology<br>. What began as simple experiments quickly turned into building<br> for the web — fast, accessible, and thoughtfully crafted.<br><br>Outside the terminal:<br>→ Football sessions & late evening matches<br>→ Jogging runs to stay sharp and focused<br>→ Quiet fishing moments to reset and thinkp with<br>
+Soulaimane El Masnaouy<br>Full-Stack Developer & Creative Coder<br><br>📍 Temara, Morocco<br>💼 Open to opportunities<br>🎓 Specialized Technician Diploma in Digital Development (Web Full Stack – OFPPT NTIC Rabat)<br><br>I started coding at 24, driven by curiosity and a growing passion for technology<br>. What began as simple experiments quickly turned into building<br> for the web — fast, accessible, and thoughtfully crafted.<br><br>Outside the terminal:<br>→ Football sessions & late evening matches<br>→ Jogging runs to stay sharp and focused<br>→ Quiet fishing moments to reset and thinkp with<br>
 
 
 ## 🌐 Socials:
